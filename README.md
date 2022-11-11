@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zMeerjungfraumann aka best programmer ever!
-- 👀 I’m interested in BBL's
+- 👀 I’m interested in Latinas
 - 🌱 I’m currently learning Java, JavaScript, HTML, CSS, Git
 - 💞️ I’m looking to collaborate on food
 - 📫 How to reach me: don't
